@@ -1,0 +1,1 @@
+# Deprem-Tsunami-Harita-le-Analiz
